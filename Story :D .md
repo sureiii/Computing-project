@@ -1,2 +1,2 @@
 A figure stood there, a fading silhouette against a rapidly darkening sky. Night was approaching. Soon, brilliant stars filled the endless black above. Something was off however, it was silent, too silent...
-Slowly it turned around, glowing blue eyes piecing the dark, narrowing in on...me.
+Slowly it turned around, glowing blue eyes piecing the dark, narrowing in on...me. The woind seemed to blow harder, it whistled in my ears. Then, all went dark, not even a glimmer of light from the stars seeping through.
